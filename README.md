@@ -7,3 +7,5 @@ Prior to Palmetto, I lead teams focused on Video Streaming (iStreamplanet (Warne
 I spend my time free time in my garden or coaching Lacrosse for my girls lacrosse club or helping girls, women and people who identify as women get involved in STEM.
 
 
+
+
